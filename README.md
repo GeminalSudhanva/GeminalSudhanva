@@ -93,7 +93,7 @@ AGM Rural College of Engineering and Technology
 ## 📫 Connect
 📍 Karnataka, India  
 💼 Open to internships, freelance work, and collaborations  
-🔗 GitHub: https://github.com/YOUR_USERNAME  
+🔗 GitHub: https://github.com/GeminalSudhanva 
 
 ---
 
